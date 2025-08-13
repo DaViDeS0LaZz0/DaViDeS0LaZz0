@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DaViDeS0LaZz0
-- 👀 I’m interested in ...cryptos
+- 👀 I’m interested in ... Private Keys Hunting 
 - 🌱 I’m currently learning ... cryptos trading strategies 
 - 💞️ ????
 - 📫 solazzodavide@hotmail.com
